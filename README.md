@@ -18,7 +18,7 @@ Aquí encontrarás información clara y accesible sobre cómo manejamos tus dato
 ## 📬 Contacto  
 Si tienes dudas sobre el manejo de tu información, puedes contactarnos:
 
-- Teléfono: **+52 33 1764 5188**  
-- WhatsApp: **+52 33 1147 29645**
+- WhatsApp: **+52 33 1764 5188**  
+- Teléfono: **+52 33 1142 9645**
 
 Gracias por confiar en PerruPaw.
