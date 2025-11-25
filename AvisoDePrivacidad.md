@@ -103,6 +103,20 @@ Enviar un mensaje a **+52 33 1142 9645** indicando tu intención de eliminar tu 
 
 ---
 
-## 🕒 7. Disponibilidad
+🕒 7. Disponibilidad
 
-Los métodos de eliminac
+Los métodos de eliminación están disponibles las 24 horas del día, los 7 días de la semana.
+
+🔄 8. Actualizaciones del aviso
+
+Este Aviso de Privacidad puede actualizarse. Siempre podrás consultar la versión vigente en este mismo enlace.
+
+📬 Contacto
+
+Si tienes dudas sobre el tratamiento de tus datos personales, puedes comunicarte con nosotros:
+
+Teléfono: +52 33 1764 5188
+
+WhatsApp: +52 33 1142 9645
+
+Gracias por confiar en PerruPaw. 🐶💚
