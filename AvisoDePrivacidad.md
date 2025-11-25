@@ -97,7 +97,7 @@ Puedes solicitar la eliminación mediante cualquiera de estos métodos:
 
 ### 🟩 **Método 2: Por WhatsApp**
 
-Enviar un mensaje a **+52 33 1147 29645** indicando tu intención de eliminar tu información.
+Enviar un mensaje a **+52 33 1142 9645** indicando tu intención de eliminar tu información.
 
 ⏱️ *Tu solicitud será atendida en un plazo no mayor a **30 días naturales**.*
 
